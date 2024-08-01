@@ -1,1 +1,0 @@
-# ietomi-sena.github.io
